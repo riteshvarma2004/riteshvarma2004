@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on start ups
 - 📫 How to reach me 9441147368
 - 😄 Pronouns: ...
-- ⚡ Fun fact: i like playing bgmi8 no fun
+- ⚡ Fun fact:
 - 
 
 <!---
